@@ -11,4 +11,4 @@
    ### Se adjunta el Manual de Protocolo
    [[Infome Precios comparados y Recomendaciones] https://docs.google.com/document/d/1W5eJ7eXvLYuEtcisEs_yRZdGJrOLf5sh6fYdsX64gcU/edit?usp=sharing]
    ### Presentaciones armadas
-   [[Presentaciones sobre Precios comparados y Recomendaciones]( https://gamma.app/docs/Navidad-en-Posadas-Productos-Estrella-y-Estrategias-de-Compra-ld951f9tvb6wuin)]
+   [[Presentaciones sobre Precios comparados y Recomendaciones](https://gamma.app/docs/Navidad-en-Posadas-Productos-Estrella-y-Estrategias-de-Compra-ld951f9tvb6wuin)]
