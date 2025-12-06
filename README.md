@@ -1,7 +1,7 @@
 # examen_06-Dic-2025
    # EXAMEN FINAL 06-DIC-25 TURNO INTENSIVO (SABADO)
    # REGULAR COMPLETO
-   ## TECNICATURA DE DESPACHO/REC.DIG/ SEGURIDAD & HIGIENE
+   ## TECNICATURA DE REC.DIG
    
    ## Precios comparativos de Artículos de Navidad Posadas y Encarnación.
 
